@@ -1,0 +1,1 @@
+# curriculo.jornada.dev
